@@ -1,0 +1,1 @@
+# Industry-5.0-Paradigm
